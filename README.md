@@ -1,4 +1,4 @@
-- 👋 Hi, we are @tcmgsociety
+- 👋 Howdy! We are @tcmgsociety. 
 - 👀 We interested in the professional and technical development of our TCMG Students!
 
 
